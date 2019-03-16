@@ -9,4 +9,4 @@ TULISEN NAMAMU!!!!
 5. He ayo Elma Ndang Push en!!!
 6. Ayo Reck nang Masjid
 7. IKI DORONG GARAP PROJECTS WES NGELU+RUWET MASALAH SOURCETREE WKWKWKW
-8. 
+8. Ayo Sholat!!!

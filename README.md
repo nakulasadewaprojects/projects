@@ -7,4 +7,5 @@ TULISEN NAMAMU!!!!
 3. DENA
 4.
 5. He ayo Elma Ndang Push en!!!
-6. Ayo Reck nang Masjid
+6. Ayo Reck nang Masjid!!!
+7. He Reck Areck!!!

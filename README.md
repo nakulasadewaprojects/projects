@@ -10,3 +10,4 @@ TULISEN NAMAMU!!!!
 6. Ayo Reck nang Masjid
 7. IKI DORONG GARAP PROJECTS WES NGELU+RUWET MASALAH SOURCETREE WKWKWKW
 8. Ayo Sholat!!!
+9. Ayo reck tuku maem!!!

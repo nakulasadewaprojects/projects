@@ -1,9 +1,8 @@
 # projects
 
-tes tes 123
+TULISEN NAMAMU!!!!
 
-<<<<<<< HEAD
-hmmm
-=======
-elma
->>>>>>> d292233403927b0779b43b84e9fa947216432644
+1. M. Zhafran
+2. 
+3. 
+4. 

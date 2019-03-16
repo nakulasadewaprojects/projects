@@ -12,3 +12,4 @@ TULISEN NAMAMU!!!!
 8. Ayo Sholat!!!
 9. Ayo reck tuku maem!!!
 10. Ngelu Aku pengen maem
+11. bentar lagi jam 2 hehe

@@ -11,3 +11,4 @@ TULISEN NAMAMU!!!!
 7. IKI DORONG GARAP PROJECTS WES NGELU+RUWET MASALAH SOURCETREE WKWKWKW
 8. Ayo Sholat!!!
 9. Ayo reck tuku maem!!!
+10. Ngelu Aku pengen maem
